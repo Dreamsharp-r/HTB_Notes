@@ -1,1 +1,1 @@
---->Hi, I'm @Dreamsharp-r. I'm currently learning python to better augment my toolkit. Looking forward to posting my first python project on here and will welcome any support. If you're interested in reaching me just message me. 
+--->Hi, I'm @Dre
